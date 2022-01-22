@@ -2,7 +2,7 @@
 
 I'm Amnah 👩🏻✨
 
-An IT professional who adores solving various and tricky problems, passionate about simplifying things through technology 🤖
+An IT professional who adores solving various and tricky problems, passionate about simplifying things through technology.
 
 - I'm currently working on cool stuff 😍🚀
 - I'm currently learning everything 💡🌱
